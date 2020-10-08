@@ -10,6 +10,9 @@ Matt S. | [DoctorShields](https://github.com/DoctorShields) | I like pizza :pizz
 ## 2nd Period - Mr. Helmstetter
 Name | Username | Fun Fact
 --- | --- | ---
-max |[mtimmin65](https://github.com/mtimmin65) | im maxwell alistair clarke timmins
-Josie M.|[jmuss07](https://github.com/jmuss07) | Hahahaha imagine having a fun fact (I have a pet frog)
+Max T. |[mtimmin65](https://github.com/mtimmin65) | im maxwell alistair clarke timmins
+Jai A. |[jaust80](https://github.com/jaust80) | I have 6 pets
 
+## 4th Period - Mr. Helmstetter
+Name | Username | Fun Fact
+--- | --- | ---
